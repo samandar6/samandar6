@@ -23,6 +23,6 @@ I work remotely and like to travel a lot.
 </code>
 <br /><br />
 
-- 📍 &nbsp; Current location: Navoi, Uzbekiston
+- 📍 &nbsp; Current location: Samarkand, Uzbekiston
 - 📝 &nbsp; Ask me about anything, I am happy to help
 - 📨 &nbsp; How to reach me: [Samandar](https://t.me/Jimcarrey1962)
